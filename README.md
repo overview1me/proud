@@ -7,3 +7,4 @@ dont have time tmrw workshop and hackathon tmrw 7 oct and 8 oct
 pimpompim
 umbrella
 ububububu
+hipity hopity code is property
